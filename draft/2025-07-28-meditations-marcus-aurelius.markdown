@@ -1,0 +1,1 @@
+Marcus Aurelius Antoninus được sinh ra vào ngày 26 tháng 4 năm 121 TCN, có tên thật là M. Annius Verus. Ông xuất thân từ một gia đình quý tộc, thuộc dòng dõi của vua Numa - vị vua thứ hai của La Mã.
